@@ -26,7 +26,6 @@ I used this Reddit post as a starting point https://www.reddit.com/r/Cooking/com
 - 3 cups Chicken Stock (for a darker look, use beef stock, but chicken will have a better flavor)
 - 1/2 cup Heavy Cream
 - Kosher Salt
-- Approx 1/4 lb frozen chicken livers
 - Approx 1/3 lb frozen chicken livers
 - Approx 1 Tbsp soy sauce
 - Approx 1 tsp fish sauce
@@ -59,5 +58,4 @@ I used this Reddit post as a starting point https://www.reddit.com/r/Cooking/com
 
 - Season with salt to taste and serve hot.
 
-- Sauce will keep for approxiately 1 week in the refrgigerator and is easy to reheat without breaking.
 - Sauce will keep for approximately 1 week in the refrigerator and is easy to reheat without breaking.
